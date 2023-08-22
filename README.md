@@ -1,2 +1,1 @@
-# ossp2
-2주차실습
+I lvoe hearin
